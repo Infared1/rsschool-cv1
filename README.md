@@ -1,1 +1,1 @@
-https://Infared1.github.io/rsschool-cv1/cv
+https://Infared1.github.io/rsschool-cv1/
